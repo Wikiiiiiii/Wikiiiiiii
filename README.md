@@ -4,7 +4,14 @@
 - 💞️ I’m looking to collaborate on my self-esteem π-π.
 - 📫 How to reach me? It's easy, I'm beginner and I have the worst English.
 
-<!---
-Wikiiiiiii/Wikiiiiiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+**How to contact me!!!**
+
+Tik Tok 💜🎞️: https://www.tiktok.com/@wikiii_uwu [📈****more probability of answer****]
+
+Email 📱📩: DiegoLopezCastilla54@gmail.com [📉****less probability of answer****]
+
+<br>
+
+*please read the in question project schedule*
+
+byeeee!!!💜💜💜
